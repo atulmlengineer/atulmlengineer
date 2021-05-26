@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **atul.mlengineer@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZBIJdx8n-mVNIjPlmcRD4Ho9U83KHvGR/view?usp=sharing](https://drive.google.com/file/d/1ZBIJdx8n-mVNIjPlmcRD4Ho9U83KHvGR/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1NDRYy1Ysa3w47_ge5RtkwC1SprMm_Auv/view?usp=sharing
 
 - ⚡ fact **I can feel what I need**
 
